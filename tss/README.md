@@ -1,1 +1,0 @@
-Takeover By abir Khan
